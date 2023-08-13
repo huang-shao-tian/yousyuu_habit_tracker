@@ -1,6 +1,6 @@
-## Yousyuu's Cultivated Habits
+## Cultivated Habits
 
-## 葉修の身につけた習慣
+## 身につけた習慣
 
 ### 1. 精神と感覚
 
